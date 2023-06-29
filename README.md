@@ -1,6 +1,6 @@
-- 👋 Hi, I’m my nome bruxinha 
+- 👋 Hi, I’m my nome sibelly
 - 👀 I’m interested in games 
-- 🌱 
+- 🌱 16a anos
 - 💞️ namorando
 - 📫 tenho que fazer licoe
 
