@@ -1,8 +1,8 @@
 - 👋 Hi, I’m my nome bruxinha 
 - 👀 I’m interested in games 
 - 🌱 
-- 💞️ I’m looking to collaborate on eu namoro.
-- 📫 tenho que fazer licoesn
+- 💞️ namorando
+- 📫 tenho que fazer licoe
 
 <!---
 Sibellycamargon31/Sibellycamargon31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
